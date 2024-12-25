@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Chaitanya Sriram
+Chaitanya Sriram Gaddipati
 ---
 - 📫 How to reach me: cgaddipati@wpi.edu
